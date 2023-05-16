@@ -9,3 +9,7 @@
 * 文章 （2,008 篇）
 * 关于酷壳
 * 关于陈皓
+
+---
+
+磁力链接：`magnet:?xt=urn:btih:1d082073029dd3b027fcd388fa3e7553f5982fbd&dn=CoolShell-MHT-Archive&tr=udp%3a%2f%2ftracker.openbittorrent.com%3a80%2fannounce`
